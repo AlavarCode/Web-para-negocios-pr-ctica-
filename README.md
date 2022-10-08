@@ -1,1 +1,1 @@
-# Web-para-negocios-pr-ctica-
+# Web-para-negocios-práctica-
